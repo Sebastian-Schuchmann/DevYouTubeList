@@ -134,6 +134,7 @@
 * [Paola from TOKYO](https://www.youtube.com/channel/UCixD9UbKvDxzGNiPC_fgHyA)
 * [Life of Luba](https://www.youtube.com/channel/UCgzKCeDYLRzPhQ64R6AKyBQ)
 * [Socratica](https://www.youtube.com/user/SocraticaStudios)
+* [Sebastian Schuchmann](https://www.youtube.com/c/SebastianSchuchmannAI)
 
 
 
